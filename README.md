@@ -1,0 +1,2 @@
+# kaspi
+mening birinchi lolyham
